@@ -1,2 +1,2 @@
-# Go away
-You shouldn't be here. Shoo!
+# Go away, kiddo.
+You bother me.
