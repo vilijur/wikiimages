@@ -1,2 +1,2 @@
-# Go away, kiddo.
+# Go away, kid.
 You bother me.
